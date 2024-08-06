@@ -1,1 +1,1 @@
-!st year !st semester project.
+1st year 1st semester project.
